@@ -1,3 +1,7 @@
+[Stanford: Day 8](http://www.aaronsw.com/weblog/001425)
+
+> It turns out sign language is really a fascinating language, full of cruel puns (“pastuerized milk” is signed by moving the sign for milk past-your-eyes)
+
 [Stanford: Day 5](http://www.aaronsw.com/weblog/001423)
 
 >I am not entirely sure what explains this. A large part of it is likely my writing in this space. I am frequently taking notes on my surroundings and thinking about how I will write about them. I suspect this gives me something of an ironic detachment that allows me to see the humor in my situation instead of feeling the pain. (For example, normally I’d feel anxious and glum about buying a file cabinet and leaving it outside because I’m too scared to ask for help. But now it’s simply a hilarious act in a drama! Whatever is going to happen to it?) It also gives otherwise meaningless events a purpose — I convince myself to talk to people and do things by saying that I will be able to write about them later.
