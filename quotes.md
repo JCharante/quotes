@@ -19,3 +19,6 @@
 
 > The last time my path crossed with TimBL is when I was applying for Stanford. My Dad happened to be in Cambridge at the time and insisted on asking TimBL for a letter of recommendation, by going over to TimBL’s office. Apparently he had better luck than I, since I’m told TimBL agreed and I was later accepted to Stanford. I guess a letter of recommendation from the creator of the Web counts for something, even if he is an Englishman.
 
+[@aaronsw](https://twitter.com/aaronsw/status/248487298021355520)
+
+What did people use their second front pocket for before cell phones?
