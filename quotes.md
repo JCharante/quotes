@@ -8,7 +8,7 @@
 
 >People seem to assume that I am like the high school freaks who sit under the bleachers and laugh with each other about the inanity of the good students. But my criticism comes not from detachment but experience — I have not thrown myself into cheers or into fountains, but I have tried my best to follow the acts and suggestions of others to the extent I can without compromising my sense of self (or clothing). One controvertial point was my discussion of dancing:
 
->Inside the party, the clear focus was on the dancing. Teenagers moving their bodies in bizarre and vaguely rhythmic positions in close proximity to one another. I’d seen the practice frequently enough on TV, so on one level I knew what to expect, but on another it was wholly bizarre. It was like watching brownian motion or a complex screensaver, it’s completely meaningless and random but it’s also complicated enough that you don’t look away.
+>>Inside the party, the clear focus was on the dancing. Teenagers moving their bodies in bizarre and vaguely rhythmic positions in close proximity to one another. I’d seen the practice frequently enough on TV, so on one level I knew what to expect, but on another it was wholly bizarre. It was like watching brownian motion or a complex screensaver, it’s completely meaningless and random but it’s also complicated enough that you don’t look away.
 
 [Stanford: Day 4](http://www.aaronsw.com/weblog/001422)
 
