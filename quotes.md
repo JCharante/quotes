@@ -2,6 +2,14 @@
 
 >I am not entirely sure what explains this. A large part of it is likely my writing in this space. I am frequently taking notes on my surroundings and thinking about how I will write about them. I suspect this gives me something of an ironic detachment that allows me to see the humor in my situation instead of feeling the pain. (For example, normally I’d feel anxious and glum about buying a file cabinet and leaving it outside because I’m too scared to ask for help. But now it’s simply a hilarious act in a drama! Whatever is going to happen to it?) It also gives otherwise meaningless events a purpose — I convince myself to talk to people and do things by saying that I will be able to write about them later.
 
+---
+
+>As for complaints about detachment, I am not actively trying to be detached. I want to meet people, but it is difficult. I try to make conversation, to get people to tell me about themselves, but I don’t really know what to ask. Most, I suspect, have had pretty normal lives — doing well in school, perhaps the usual outside interests. I cannot ask them about their hobbies or their jobs, because they do not have any. What, exactly, should I do?
+
+>People seem to assume that I am like the high school freaks who sit under the bleachers and laugh with each other about the inanity of the good students. But my criticism comes not from detachment but experience — I have not thrown myself into cheers or into fountains, but I have tried my best to follow the acts and suggestions of others to the extent I can without compromising my sense of self (or clothing). One controvertial point was my discussion of dancing:
+
+>Inside the party, the clear focus was on the dancing. Teenagers moving their bodies in bizarre and vaguely rhythmic positions in close proximity to one another. I’d seen the practice frequently enough on TV, so on one level I knew what to expect, but on another it was wholly bizarre. It was like watching brownian motion or a complex screensaver, it’s completely meaningless and random but it’s also complicated enough that you don’t look away.
+
 [Stanford: Day 4](http://www.aaronsw.com/weblog/001422)
 
 > This week we were repeatedly informed about the “unprecedented personal freedom” that we would have at Stanford. Apologies, but I don’t see it. First, I stay in a three-room system with four other people (two two-person bedrooms on either side and a shared office in the middle). Our only bathroom is down the hall, where there are five stalls shared with the whole hall. This means practically everything I do — sleeping, waking up, alarm clocks, working, showering, etc. — must be coordinated so as not to interfere with those other people. Stupid other people…
