@@ -1,3 +1,11 @@
+[Stanford: Day 4](http://www.aaronsw.com/weblog/001422)
+
+> This week we were repeatedly informed about the “unprecedented personal freedom” that we would have at Stanford. Apologies, but I don’t see it. First, I stay in a three-room system with four other people (two two-person bedrooms on either side and a shared office in the middle). Our only bathroom is down the hall, where there are five stalls shared with the whole hall. This means practically everything I do — sleeping, waking up, alarm clocks, working, showering, etc. — must be coordinated so as not to interfere with those other people. Stupid other people…
+
+> Of course, this is not an accident. The whole thing is a giant privately-owned community, like some sort of Disney World. The run the government, the police, the restaurants, the bookstores, the shopping center, the transportation, the entertainment, etc. Worse yet, they track you while you use it all. Everyone gets an ID card which must be swiped to eat, visit the library, use a computer terminal, check your mail. It even has a RFID transmitter in it, so they can track us while we walk. (They didn’t bother to tell us this and we wouldn’t notice because it looks just like a regular card. I just found out because I happened to walk by a reader.) They register your computer’s MAC address so they can track you if you take your laptop anywhere.
+
+> It’s like I’ve woken up in some sort of libertarian nightmare world, where one company has bought up everything and now tells everyone what to do. Obviously there’s no freedom, but the ardent libertarians still say “Look at how free you are! There’s no government telling you what to do!” If this is freedom, I think I might prefer tyranny.
+
 [Stanford: Day 3 (Aaron Swartz: The Weblog)](http://www.aaronsw.com/weblog/001421)
 
 >(As an aside, the small college by my house I went to had better food than this. It also was more like a university than this. I think Stanford's status has made it lazy.)
