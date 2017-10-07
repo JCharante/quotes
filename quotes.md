@@ -2,6 +2,10 @@
 
 >(As an aside, the small college by my house I went to had better food than this. It also was more like a university than this. I think Stanford's status has made it lazy.)
 
+---
+
+> Slightly tired of trying to meet new people like I'm told, I decide to sit alone at one table, in front of another empty table. I convince myself that I am not being anti-social but trying to attract the type of geniuses who are borderline autistic. The gambit doesn't work, everyone walks past me to sit at the empty table. Maybe no one at Stanford is borderline autistic.
+
 [Stanford: Day 10 (Aaron Swartz: The Weblog)](http://www.aaronsw.com/weblog/001427)
 
 
