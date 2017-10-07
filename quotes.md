@@ -1,3 +1,7 @@
+[Stanford: Day 3 (Aaron Swartz: The Weblog)](http://www.aaronsw.com/weblog/001421)
+
+>(As an aside, the small college by my house I went to had better food than this. It also was more like a university than this. I think Stanford's status has made it lazy.)
+
 [Stanford: Day 10 (Aaron Swartz: The Weblog)](http://www.aaronsw.com/weblog/001427)
 
 
