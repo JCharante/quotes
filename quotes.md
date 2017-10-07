@@ -3,6 +3,10 @@
 
 >I am running out of clothes, so I prepare to wash my clothes for the first time on my own. I learn how from Google, hoist my laundry nag and carry it to the stairs. A girl sees me pause and suggests I just drop the bag down the center of the stairwell. “At most you’d kill some freshman,” she adds encouragingly, before thinking to inquire if I’m a freshman.
 
+>I carry my laundry down the old-fashioned way. The whole cleansing process takes two hours and has no visible effect on the clothes. I’d guess that the process removed microscopic germs, except for the fact that germs only thrive in damp, warm environments — exactly the environment created by the washing machine. It’s quite late and I don’t see an iron so I leave my clothes as they are for that hip, grungy look.
+
+
+
 [My Life With Tim (Aaron Swartz's Raw Thought)](http://www.aaronsw.com/weblog/mylifewithtim)
 
 >In 7th grade we were asked to do a project on the Great Men Who Made America, or something like that. Other kids chose civil rights leaders and politicians and even scientists. Then a big tech geek, I chose my hero, Tim Berners-Lee, inventor of the World Wide Web.
