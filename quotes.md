@@ -1,3 +1,7 @@
+[Stanford: Day 5](http://www.aaronsw.com/weblog/001423)
+
+>I am not entirely sure what explains this. A large part of it is likely my writing in this space. I am frequently taking notes on my surroundings and thinking about how I will write about them. I suspect this gives me something of an ironic detachment that allows me to see the humor in my situation instead of feeling the pain. (For example, normally I’d feel anxious and glum about buying a file cabinet and leaving it outside because I’m too scared to ask for help. But now it’s simply a hilarious act in a drama! Whatever is going to happen to it?) It also gives otherwise meaningless events a purpose — I convince myself to talk to people and do things by saying that I will be able to write about them later.
+
 [Stanford: Day 4](http://www.aaronsw.com/weblog/001422)
 
 > This week we were repeatedly informed about the “unprecedented personal freedom” that we would have at Stanford. Apologies, but I don’t see it. First, I stay in a three-room system with four other people (two two-person bedrooms on either side and a shared office in the middle). Our only bathroom is down the hall, where there are five stalls shared with the whole hall. This means practically everything I do — sleeping, waking up, alarm clocks, working, showering, etc. — must be coordinated so as not to interfere with those other people. Stupid other people…
