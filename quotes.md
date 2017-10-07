@@ -14,3 +14,8 @@
 >A few days later I received a rather short-tempered reply. “Regrets?” he said. “I have a few. But then again, too few to mention.” (I didn’t get the reference until years later when I heard the words again over the radio — I thought he was just being poetic.) But my favorite answer was his response to one of the theme questions I asked: “How do you think your work has shaped America?” or something like that. (I was taking the assignment a little too literally, I guess.) He shot back with a phrase that’s stuck with me ever since: “I was an Englishman living in France and working in Switzerland — it’s got nothing to do with America.” I proudly reported this back to my teacher, complaining about his assignment’s Amerocentrism.
 
 > The next time I check Tim’s web page, it said not to email him concerning school projects on the Web or on Tim Berners-Lee.
+
+---
+
+> The last time my path crossed with TimBL is when I was applying for Stanford. My Dad happened to be in Cambridge at the time and insisted on asking TimBL for a letter of recommendation, by going over to TimBL’s office. Apparently he had better luck than I, since I’m told TimBL agreed and I was later accepted to Stanford. I guess a letter of recommendation from the creator of the Web counts for something, even if he is an Englishman.
+
