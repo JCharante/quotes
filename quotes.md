@@ -21,4 +21,4 @@
 
 [@aaronsw](https://twitter.com/aaronsw/status/248487298021355520)
 
-What did people use their second front pocket for before cell phones?
+> What did people use their second front pocket for before cell phones?
