@@ -1,3 +1,7 @@
+[Paul Fussell](http://g2mil.com/)
+
+> What someone doesn't want you to publish is journalism, all else is publicity.
+
 [Stanford: Day 9](http://www.aaronsw.com/weblog/001426)
 
 > I finish off by buying books. It’s not too bad — $150. Since you can return books within a week and for most classes we don’t use the same book for too long, I consider saving money by returning the books and rebuying them each week until I don’t need them anymore.
